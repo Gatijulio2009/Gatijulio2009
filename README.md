@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Gatijulio2009
+- 👀 I’m interested in Camera rig motorized motion, 3d printing, fast droning...
+- 🌱 I’m currently learning Motoricing cameras
+- 💞️ I’m looking to collaborate on Tobotic engeenering
+- 📫 How to reach me peacefully and with patience
